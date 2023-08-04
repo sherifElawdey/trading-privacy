@@ -1,6 +1,6 @@
 # Privacy Policy
 
-[["We" or "I", or [Website or App name](https://www.forexexpertsacademy.com)]] takes your privacy seriously. To better protect your privacy [["we" or "I"]] provide this privacy policy notice explaining the way your personal information is collected and used.
+[we [trading experts academy](https://www.forexexpertsacademy.com)]] takes your privacy seriously. To better protect your privacy [["we" or "I"]] provide this privacy policy notice explaining the way your personal information is collected and used.
 
 
 ## Collection of Routine Information
